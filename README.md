@@ -1,2 +1,2 @@
 # justshareBD2bot
-"Telegram bot with premium and awareness features"🇵🇸
+"Telegram bot with premium and awareness features" freePalestine🇵🇸✅
